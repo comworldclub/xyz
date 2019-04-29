@@ -1,1 +1,1 @@
-http://x.xwyd.me/
+{"host":["http://x.xwyd.me"]}
