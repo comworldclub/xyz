@@ -1,3 +1,3 @@
-# 网站最新访问地址
-[https://comworld.xyz](https://comworld.xyz)
+# 快狗雲加速器網站最新訪問地址
+[http://i.quickdog.xyz](http://i.quickdog.xyz)
 
